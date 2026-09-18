@@ -4,6 +4,9 @@ discontinuing Github
 come back for new download 
 https://betadrop.app/install/S8nivL
 
+          license
+https://canva.link/license-hadi-iqbal
+
 
 
 ok its me the owner and dev If it doesn't install like you like you clicked download, but it refuses to um like download the APK, use another device and then share the download to the device you're trying to use then Download on Secondary Device
