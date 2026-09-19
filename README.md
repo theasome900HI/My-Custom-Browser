@@ -2,7 +2,7 @@
 My Custom Browser so i made a browser for slow android and apple devices
 discontinuing Github
 download : https://betadrop.app/install/ArqxUv
-
+VN 1.29
 
           license
 https://canva.link/license-hadi-iqbal
